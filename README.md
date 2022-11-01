@@ -1,2 +1,6 @@
 # devops
-drdy
+kxncnk
+saas;cas;cas
+kaslna
+s;asca
+sdrdy
